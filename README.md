@@ -1,3 +1,3 @@
 # Newwave-Party
 
-Newwave party - Chonradsadornumrung School
+Newwave party - Chonradsadornumrung School.
